@@ -1,16 +1,15 @@
-## Hi there 👋
 
-<!--
-**zacww/zacww** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![Image](https://github.com/user-attachments/assets/9487297d-b11b-48b6-bb92-c005b18bb68c)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+◜₊ ͡ ୧‿ིྀˌ͙‿𓉳‿ིྀˌ͙‿୨ ͡ ₊◝
+
+ 
+𝓓ᴇᴀʀ ᴘᴀsᴛ, ɪ ɴᴇᴇᴅ ᴛᴏ ʀᴜɴ ᴀᴡᴀʏ ғʀᴏᴍ ʏᴏᴜ, ʙᴜᴛ ɪ ᴄᴀɴ'ᴛ.
+ 
+![Image](https://github.com/user-attachments/assets/86ef5cfc-ef04-4f20-9f4c-7bc3d42ec3e1)
+
+
+   “-⏝⊹⏝ ⏝⊹⏝  ꒰ა ⑅ ໒꒱  ⏝⊹⏝ ⏝⊹⏝ -“
+
+
